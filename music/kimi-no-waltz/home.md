@@ -1,0 +1,1 @@
+In 2026, I released my self-produced album "Kimi no Waltz," featuring seven original songs plus a cover of "Amazing Grace."
